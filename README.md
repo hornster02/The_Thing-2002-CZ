@@ -1,5 +1,5 @@
-2014-04
-<br/>
+SCORE 206 (2014-04)
+
 Mrazík & SUSHI
 
-https://github.com/hornster02/The_Thing-2002-CZ/raw/main/the_thing_2002_cestina_score_206.rar
+Velikost 1MB https://github.com/hornster02/The_Thing-2002-CZ/raw/main/the_thing_2002_cestina_score_206.rar
